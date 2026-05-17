@@ -1,0 +1,1 @@
+# qrparivahangov-qrCode-Receipt-val-HftKk2A2ou-2cPSvVkJ_cg7SL0YPHZzdz_MP-aSVTJTsHvHxPc2X
